@@ -7,7 +7,7 @@ Of the highest of [[The Malâk]]. These beings are charged with the order and ke
 
 [[Pleo]] - Saving Knowledge
 [[Maléa]] - Saving Nature
-[[Thorin]] - Saving Will
+[[Thórin]] - Saving Will
 [[Liuna]] - Saving Devotion
 [[Aléa]] - Saving Spirit
 [[Forséa]] - Saving Peoples
