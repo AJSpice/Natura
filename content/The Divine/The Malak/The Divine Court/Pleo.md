@@ -1,0 +1,2 @@
+
+Dedicated wholly to *Saving* Knowledge above all. By pursuing knowledge, by intense study, and by academia, they believe we can know what there is to know. All of [[The Old Gods]] and the mysteries of [[Crea]] can be known if only to pursue it. I have dedicated myself to this cause and worship only above **Pleo** my beloved, Knowledge.

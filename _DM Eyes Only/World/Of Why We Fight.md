@@ -1,0 +1,2 @@
+
+An essential document to [[Race, Dwarves |The Dwarves]]. From what I attempt to study of their complicated societies, it is a somewhat religious, but mostly cultural tome that is what motivates the Dwarves. They may not quote or even read it in some sects, but it motivates their fiery hearts nonetheless.
